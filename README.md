@@ -1,4 +1,4 @@
-# PrivateH igh School Private Tuitions
+# Private High School Private Tuitions
 
 ![image](PrivateHighSchoolPrivateTuitions.jpg)
 
